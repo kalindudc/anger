@@ -1,3 +1,3 @@
 # Anger
 
-Fierce display of true anger X(
+Fierce display of true anger :X
